@@ -2,7 +2,7 @@
 
 **`Desenvolvedor FullStack`**
 
-Me chamo Deivyson Barboza Santos, tenho 18 anos e sou natural de Sergipe. Concluí o ensino médio no CEDTQ, com o curso técnico em informática. Atualmente, estou cursando Ciências da Computação na UNIT. Sou apaixonado por tecnologia, e também ondde compartilho meus conhecimentos através do Instagram, com o perfil chamado "[Deivyson_snts](https://www.instagram.com/deivyson_snts?igsh=MTNmbjZ5N2Zlcm56Ng%3D%3D&utm_source=qr)" e pelo meu "[Linkedin-deivysonbarboza](www.linkedin.com/in/deivyson-barboza-89a81b366)".
+Me chamo Deivyson Barboza Santos, tenho 18 anos e sou natural de Sergipe. Concluí o ensino médio no CEDTQ, com o curso técnico em informática. Atualmente, estou cursando Ciências da Computação na UNIT. Sou apaixonado por tecnologia, e também ondde compartilho meus conhecimentos através do Instagram, com o perfil chamado "[Deivyson_snts](https://www.instagram.com/deivyson_snts?igsh=MTNmbjZ5N2Zlcm56Ng%3D%3D&utm_source=qr)" e pelo meu "[Linkedin-deivysonbarboza](www.linkedin.com/in/deivysonbarboza)".
 
 
 
